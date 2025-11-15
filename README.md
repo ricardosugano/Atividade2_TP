@@ -1,1 +1,4 @@
 # Atividade2_TP
+
+RICARDO NOBUO SUGANO
+FATEC DSM 2
